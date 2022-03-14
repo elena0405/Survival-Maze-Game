@@ -1,0 +1,1 @@
+ Fii atenta, Anca! Sa stii ca imi merge taskul 3, doar ca este destul de mica sursa de lumina. Daca misti putin cu w sursa de lumina, o sa o observi. 
